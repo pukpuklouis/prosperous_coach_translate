@@ -39,9 +39,9 @@
 * [第三十四章](chapter-34.md)
 * [第三十五章](chapter-35.md)
 * [第三十六章](chapter-36.md)
-* [第三十七章](di-san-shi-qi-zhang-chapter37.md.md)
-* [第三十八章](di-san-shi-ba-zhang-chapter38.md.md)
-* [第三十九章](di-san-shi-jiu-zhang-chapter39.md.md)
+* [第三十七章](chapter-37.md)
+* [第三十八章](chapter-38.md)
+* [第三十九章](chapter-39.md)
 * [第四十章](di-si-shi-zhang-chapter40.md.md)
 * [第四十一章](di-si-shi-yi-zhang-chapter41.md.md)
 * [第四十二章](di-si-shi-er-zhang-chapter42.md.md)
@@ -63,3 +63,4 @@
 * [第五十八章](di-wu-shi-ba-zhang-chapter58.md.md)
 * [第五十九章](di-wu-shi-jiu-zhang-chapter59.md.md)
 * [第六十章](di-liu-shi-zhang-chapter60.md.md)
+
