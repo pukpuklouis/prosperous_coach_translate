@@ -3,6 +3,7 @@
 
 # Have the disciplines be fun
 by Steve
+
 THE DEGREE TO WHICH WE practice these disciplines is the degree to which our coaching practices grow in both revenue and clients.
 Soon there is a movement toward really high-paying clients with good, strong fees for the coach. Those are our outcomes from practicing the disciplines.
 Again, there’s a reason we call them disciplines instead of other things like “tips” or “strategies” or “secrets” or things like that. Disciplines are activities that are practiced. Disciplines are things that you put yourself through and work with and take out into the world and do.
