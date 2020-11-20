@@ -2,7 +2,7 @@
 
 * [富足教練](README.md)
 * [推薦序](forward.md)
-* [本書獻給](undefined.md)
+* [本書獻給](dedication.md)
 * [第一章](chapter-1.md)
 * [第二章](chapter-2.md)
 * [第三章](chapter-3.md)
@@ -36,5 +36,4 @@
 * [第三十一章](chapter-31.md)
 * [第三十二章](chapter-32.md)
 * [第三十三章](chapter-33.md)
-
 
