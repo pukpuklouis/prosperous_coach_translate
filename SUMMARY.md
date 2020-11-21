@@ -72,4 +72,11 @@
 * [第六十七章](chapter-67.md)
 * [第六十八章](chapter-68.md)
 * [第六十九章](chapter-69.md)
-
+* [附註](Appendices.md)
+* [Appendices 1](Appendices-1.md)
+* [Appendices 2](Appendices-2.md)
+* [Appendices 3](Appendices-3.md)
+* [Appendices 4](Appendices-4.md)
+* [Appendices 5](Appendices-5.md)
+* [Appendices 6](Appendices-6.md)
+* [Appendices 7](Appendices-7.md)
