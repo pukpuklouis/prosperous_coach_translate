@@ -1,6 +1,8 @@
+# What Steve Chandler’s up to
+
 What Steve Chandler’s up to:
 
-# The Wealth Warrior Movement
+## The Wealth Warrior Movement
 
 Serve the world with what you love to do.
 
@@ -13,3 +15,4 @@ As Steve says, “You and I, operating as creative, inspired individuals, can cr
 Go to www.SteveChandler.com to register and access the ten-part Creating Wealth audio series.
 
 Email Maurice Bassett at MauriceBassett@gmail.com for a sample audio program.
+

@@ -1,12 +1,14 @@
 # 第六十九章
 
-# The end is really the beginning
+## 第六十九章
+
+## The end is really the beginning
 
 by Rich
 
 EVERY TIME I WATCH A Hollywood romance with my wife, I am amused that the credits begin to roll just at the moment the guy gets the girl, or just as they say their wedding vows.
 
-My wedding day was one of the happiest moments of my life. But it was really just the beginning of my relationship. Monique and I have had ups and downs. We’ve faced challenges and we’ve struggled. We have moments when we can read each other’s minds and we feel totally in love. And we have moments when each of us wonders, “Why I am with this person who doesn’t understand anything I say or do?” (Plus, “Why oh why won’t he do the washing up like he promised?”)The way you create a thriving relationship—one day at a time and one conversation at a time—is also the only way to create a thriving coaching practice.
+My wedding day was one of the happiest moments of my life. But it was really just the beginning of my relationship. Monique and I have had ups and downs. We’ve faced challenges and we’ve struggled. We have moments when we can read each other’s minds and we feel totally in love. And we have moments when each of us wonders, “Why I am with this person who doesn’t understand anything I say or do?” \(Plus, “Why oh why won’t he do the washing up like he promised?”\)The way you create a thriving relationship—one day at a time and one conversation at a time—is also the only way to create a thriving coaching practice.
 
 The end of this book is just the beginning of the next stage of your coaching practice.
 
@@ -14,10 +16,7 @@ Let go of any need for a “magic” system for creating clients. Instead, focus
 
 And be prepared for a miracle to occur.
 
-mir·a·cle [mir-uh-kuh l]
-noun
-an effect or extraordinary event in the physical world
-that surpasses all known human or natural powers
+mir·a·cle \[mir-uh-kuh l\] noun an effect or extraordinary event in the physical world that surpasses all known human or natural powers
 
 Dictionary.com
 
@@ -41,6 +40,5 @@ One of those three women is in charge of training and they have invited her to t
 
 You know, life really can be exponential. You are far closer to everything you want than you could ever imagine. Miracles are far closer than you think. And there is no one “right” way to do anything in life. Woody Allen was correct when he said that eighty-percent of success is showing up.
 
-Be YOU.
-Because there is no coach like you in the world.
-And that is priceless.
+Be YOU. Because there is no coach like you in the world. And that is priceless.
+

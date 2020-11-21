@@ -1,6 +1,8 @@
 # 第六十四章
 
-# Learn to log in and log out
+## 第六十四章
+
+## Learn to log in and log out
 
 by Steve
 
@@ -23,3 +25,4 @@ Later I saw that minutes—actual minutes spent in conversation—were the final
 It was a rough period for me. Some months my wife Kathy and I looked at less than two thousand dollars in income that month. Not ideal! But the turnaround came from logging in and not logging out.
 
 Anyone can do this. Anyone willing to be fearless about logging your communication minutes each day.
+

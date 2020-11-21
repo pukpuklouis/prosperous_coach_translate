@@ -1,6 +1,8 @@
 # 第六十一章
 
-# Learn the beauty of a routine
+## 第六十一章
+
+## Learn the beauty of a routine
 
 by Steve
 
@@ -21,3 +23,4 @@ If you want your practice to grow, design a routine. Then follow it every day. T
 Your alternative is to check in with your feelings all day long to find out what you’re up for. This leads to financial disaster, in case you haven’t noticed yet.
 
 The coaches I know who are failing have no system set up for success. They pretend they don’t know about routines or systems. It’s all about their mood and feelings. That’s what governs their actions. They have the professionalism of a toddler. They take their emotional temperature throughout the day to determine what they will or will not do. If you see yourself in this sad portrait, it may be time to throw your thermometer away and turn pro.
+

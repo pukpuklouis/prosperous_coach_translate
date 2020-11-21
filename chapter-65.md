@@ -1,6 +1,8 @@
 # 第六十五章
 
-# Grow your professional self-esteem
+## 第六十五章
+
+## Grow your professional self-esteem
 
 by Steve
 
@@ -25,3 +27,4 @@ By not paying attention to the subject. But self-esteem is destiny in this busin
 And sometimes it takes another person to come in and boost us and remind us how good we are. Sometimes our romantic partner plays that role and pumps us up before we have a big, important conversation. But don’t rely on that. Better to be in charge of that function yourself. After all, it is called self-esteem.
 
 And clients like it when you have it. It reassures them that they have picked the right person.
+

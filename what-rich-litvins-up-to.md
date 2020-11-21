@@ -1,6 +1,8 @@
+# What Rich Litvin’s up to
+
 What Rich Litvin’s up to:
 
-# High-Achieving Introverts: Unleash the Power of Your Quiet Top Performers
+## High-Achieving Introverts: Unleash the Power of Your Quiet Top Performers
 
 UP TO FIFTY PERCENT of the people we know are introverts. My current research and coaching focus on introverts who are already high achievers or who aspire to be. Women who are first time CEOs. Women who are successful entrepreneurs balancing their business with raising a family. Entrepreneurs and employees in Fortune 500 tech and media companies. Bloggers, writers, social media and traditional media experts who thrive working alone.
 
@@ -15,3 +17,4 @@ Super successful introverts often dream so big that they get overwhelmed. Despit
 Quiet top performers are also extremely talented problem-solvers with a finely-tuned ability to scan the horizon for “danger”. They are energized by challenges and threats, so they tend to avoid things-taxes, relationships, income, etc.-until they reach problem-level status. And they seek perfection, so the barrier to start each subsequent project becomes unbearably high because each time it is re-set, based upon the rewards of their previous project.
 
 If you are a Quiet Top Performer who is ready to make a bigger impact and get to your next level, an organization interested in harnessing the full power of your introverted high achievers, or you are simply interested in learning more about my work, please contact me directly: rich@richlitvin.com.
+

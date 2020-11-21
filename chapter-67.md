@@ -1,12 +1,12 @@
 # 第六十七章
 
-# You are the one you are looking for
+## 第六十七章
+
+## You are the one you are looking for
 
 by Rich
 
-Don’t ask what the world needs.
-Ask what makes you come alive, and go do that.
-Because what the world needs is people who have come alive.
+Don’t ask what the world needs. Ask what makes you come alive, and go do that. Because what the world needs is people who have come alive.
 
 Howard Thurman
 
@@ -35,3 +35,4 @@ The more YOU you become, the more fun your life will be.
 And the more YOU you become, the more your clients will pay.
 
 As Dolly Parton said: “Figure out who you are and then do it on purpose.”
+

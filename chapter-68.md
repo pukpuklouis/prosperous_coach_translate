@@ -1,6 +1,8 @@
 # 第六十八章
 
-# Five frogs are sitting on a log
+## 第六十八章
+
+## Five frogs are sitting on a log
 
 by Rich and Steve
 
@@ -31,3 +33,4 @@ Don’t wait for one-hundred percent readiness. It will never come. When you are
 Failing is not a problem you will face.
 
 Failing is how you get there.
+

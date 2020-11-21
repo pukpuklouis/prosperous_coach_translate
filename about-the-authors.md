@@ -1,4 +1,4 @@
-# About the authors
+# about the authors
 
 Rich Litvin lives his life based on one principle: Hell Yeah! or No. He is one of the world’s most exclusive success coaches and his clients are by invitation and referral only. He has worked with CEOs, millionaires, Olympic athletes, celebrities, best-selling authors, soldiers, mothers and other coaches.
 
@@ -18,6 +18,7 @@ Chandler is also a nationally recognized keynote speaker with over 1,000 speeche
 
 Chandler is the author and co-author of dozens of books, including the bestsellers, Time Warrior, 100 Ways to Motivate Yourself, Reinventing Yourself, 100 Ways to Motivate Others, 17 Lies That Are Holding You Back and Fearless. His books have been translated into more than forty foreign-language editions. He is the creator and writer of the popular blog www.imindshift.com.
 
-Chandler is a graduate of both the University of Arizona (Creative Writing and Political Science) and the elite Defense Language Institute, Presidio of Monterey, California (Russian language). He is a Cold War veteran, with four years of military service at the U.S. Army Security Agency in Berlin, Germany, and Psychological Warfare at Fort Bragg, North Carolina.
+Chandler is a graduate of both the University of Arizona \(Creative Writing and Political Science\) and the elite Defense Language Institute, Presidio of Monterey, California \(Russian language\). He is a Cold War veteran, with four years of military service at the U.S. Army Security Agency in Berlin, Germany, and Psychological Warfare at Fort Bragg, North Carolina.
 
 Chandler lives outside of Phoenix, Arizona, and can be reached at www.stevechandler.com.
+
