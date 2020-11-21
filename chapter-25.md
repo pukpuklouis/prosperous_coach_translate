@@ -1,15 +1,15 @@
 # 第二十五章
 
-# Learn to astonish your clients
+# Sell the experience, not the concept
 
-by Rich
+by Steve
 
-WHEN WAS THE LAST TIME you astonished a client?
+WHAT DO I WANT MY INTAKE conversation, my long “getting-to-know-you” conversation with a coaching prospect to demonstrate?
 
-It’s easy to lose sight of the fact that one of the most powerful ways to create new clients is to serve your current clients so powerfully that they never stop talking about you.
+I want it to demonstrate my curiosity, my love of coaching, my ability to relate a story or case history or two about people I’ve helped through coaching, my ability to listen, to relate, to get to the bottom of things, and my desire to convert dreams into projects so that my prospective client will stop wanting things and start engaging in the process of creating them.
 
-How could you astonish one of your clients today?
+Therefore I really want to take my time when I first talk to a client. And if my prospect has a website, blog posts or a physical place of business, I want to do good homework prior to talking to this prospect. That demonstrates commitment.
 
-It usually doesn’t take much.
+I always want to be the person who demonstrates what other people merely promise.
 
-Call a client the day after a coaching call for a five minute catch-up. Clients love to hear from you when it’s not expected. Send a book to a client without telling them in advance. Offer to double the length of a coaching call, to really go deep with a client. Invite a client to a day-long, face-to-face session with you, instead of your usual one hour over the phone. Write a client a personal, hand-written note, right now.
+I have had many clients who could not “afford” me who ended up working with me because they sold something, or found a sponsor or benefactor, or got a loan, etc., so I learned never to factor in my own estimation of their ability to pay. I leave that up to them. People become really resourceful when they desire something. People usually get what they desire strongly in life. And I can only cause them to desire my coaching by making an amazing demonstration of what it can do for them.

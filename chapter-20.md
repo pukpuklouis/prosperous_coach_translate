@@ -31,4 +31,4 @@ I will be very clear with them:
 
 
 “Basically unless this is an absolute yes for you, let’s leave today being totally clear that it is a no. That way if the desire begins to build in you to be coached you can come back to me. But only when you are ready.
-“And if you decide you’d like to begin, the moment you make your payment you are in. Here’s where you send your check...”
+“And if you decide you’d like to begin, the moment you make your payment you are in. Here’s where you send your check...” 
