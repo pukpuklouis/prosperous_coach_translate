@@ -1,12 +1,14 @@
 # 第四十四章
 
-# Don’t be a wallflower: Tell your story
+## 第四十四章
+
+## Don’t be a wallflower: Tell your story
 
 by Steve
 
 “I DON’T USUALLY TALK ABOUT my accomplishments.”
 
-That’s what a coach (now a good one!) told me a couple years ago when he was just learning to get clients.
+That’s what a coach \(now a good one!\) told me a couple years ago when he was just learning to get clients.
 
 I was not easy on him when he told me that.
 
@@ -31,3 +33,4 @@ You aren’t giving me enough to go on. So I probably won’t decide to work wit
 So step up and be bold. For their sake and yours.
 
 Drop all that fear-based, fake humility and stop trying to win friends and influence people. Instead, step up and change a life.
+

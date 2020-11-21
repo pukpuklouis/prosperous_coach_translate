@@ -1,6 +1,8 @@
 # 第三十七章
 
-# Push past the fear and get closer
+## 第三十七章
+
+## Push past the fear and get closer
 
 by Steve
 
@@ -17,3 +19,4 @@ Client enrollment becomes more fun and effective the closer we get to the other 
 One way to get closer is to put yourself in their place and give them the level of truth you would want.
 
 Another way to get closer is to ask them all the things you wonder about them. Such as why they have not yet achieved what they say they want to achieve.
+

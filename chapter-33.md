@@ -1,6 +1,8 @@
 # 第三十三章
 
-# Truth is what clients value
+## 第三十三章
+
+## Truth is what clients value
 
 by Steve
 
@@ -19,3 +21,4 @@ Just find one person and coach that person. Then move on. That’s really how co
 Don’t focus on massive numbers, because that takes your attention away from quality of listening, quality of conversation. It’s all about the next person you talk to, not the number of people you talk to.
 
 Slow down and focus. Stay on the path.
+

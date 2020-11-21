@@ -1,6 +1,8 @@
 # 第二十三章
 
-# Learn to astonish your clients
+## 第二十三章
+
+## Learn to astonish your clients
 
 by Rich
 
@@ -14,5 +16,5 @@ It usually doesn’t take much.
 
 Call a client the day after a coaching call for a five minute catch-up. Clients love to hear from you when it’s not expected. Send a book to a client without telling them in advance. Offer to double the length of a coaching call, to really go deep with a client. Invite a client to a day-long, face-to-face session with you, instead of your usual one hour over the phone. Write a client a personal, hand-written note, right now.
 
-Failing is not a problem you will face.
-Failing is how you get there.
+Failing is not a problem you will face. Failing is how you get there.
+

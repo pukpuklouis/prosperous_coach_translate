@@ -1,11 +1,12 @@
 # 第五十六章
 
-# Think exponential versus incremental
+## 第五十六章
+
+## Think exponential versus incremental
 
 by Rich
 
-Exponential growth looks like nothing is happening,
-and then suddenly you get this explosion at the end.
+Exponential growth looks like nothing is happening, and then suddenly you get this explosion at the end.
 
 Ray Kurzweil
 
@@ -26,3 +27,4 @@ However, something unexpected occurred: I coached four hundred people in less th
 A few years later I spent a day with a coach, sharing the principles in this book. He immediately began applying them. A week later he signed his first $50,000 client.
 
 Nobody said that change has to be slow or even hard. To live an exponential life, you have to be willing to do things differently and be open to the possibility that everything you want is closer than you think.
+

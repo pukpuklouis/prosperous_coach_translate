@@ -1,6 +1,8 @@
 # 第五十章
 
-# If you want to do this, NOW is the time
+## 第五十章
+
+## If you want to do this, NOW is the time
 
 by Rich
 
@@ -19,3 +21,4 @@ It is time to make bolder proposals.
 It is time to get comfortable feeling uncomfortable.
 
 Raising your fees is not hard when you can see the incredible results your clients are creating.
+

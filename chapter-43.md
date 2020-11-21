@@ -1,6 +1,8 @@
 # 第四十三章
 
-# The best time to plant a tree
+## 第四十三章
+
+## The best time to plant a tree
 
 by Rich
 
@@ -12,7 +14,7 @@ When I lost my job in the British education system I used my final paycheck to s
 
 I remember the very strange moment when someone first asked, “Can I pay you for this?” And I remember the even stranger moment when I first said “Yes...” and they handed me some cash.
 
-The first amount of money I was ever paid for coaching was 200 Thai Baht (that’s less than five dollars). Fast forward a few months and I had signed up my first-ever monthly coaching client for ten dollars per month.
+The first amount of money I was ever paid for coaching was 200 Thai Baht \(that’s less than five dollars\). Fast forward a few months and I had signed up my first-ever monthly coaching client for ten dollars per month.
 
 But I promised myself that I was never going back to work in an organization. I was never again going to have a boss. I was committed to being a coach. It didn’t matter what I was paid, I was going to astound people with the possibilities they couldn’t yet see for themselves.
 
@@ -40,10 +42,11 @@ There is such power in this work we call coaching. And our clients get that. I h
 
 The best time in life to plant a tree was twenty years ago. The second best time in life to plant a tree is today.
 
-  Don’t wait. Coach people.
+Don’t wait. Coach people.
 
-  Don’t wait. Raise your fees.
+Don’t wait. Raise your fees.
 
-  Don’t wait. Make bold proposals.
+Don’t wait. Make bold proposals.
 
-  Don’t wait.
+Don’t wait.
+

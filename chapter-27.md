@@ -1,6 +1,8 @@
 # 第二十七章
 
-# Possibility will trump affordability
+## 第二十七章
+
+## Possibility will trump affordability
 
 by Steve
 
@@ -16,5 +18,5 @@ Because about eighty percent of coaches end every call on the subject of money. 
 
 You’ve probably noticed that this is one of the Eighteen Disciplines—to always end the conversation on the highest possibility for the client, with the client doing the describing of that possibility. It bears repeating that when these disciplines are practiced, coaches become prosperous.
 
-
 The coaches who are failing have no system for success. It’s all about their mood and feelings. They take their emotional temperature throughout the day to determine what they will or will not do. If you see yourself in this sad portrait, throw your thermometer away and turn pro.
+

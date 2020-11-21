@@ -1,6 +1,8 @@
 # 第四十七章
 
-# Coaching is NOT a luxury
+## 第四十七章
+
+## Coaching is NOT a luxury
 
 by Rich
 
@@ -15,3 +17,4 @@ In the past coaching was seen as a luxury. But as we have faced a global economi
 So the challenge facing most coaches is not that there are too many coaches or that people do not want coaching. It’s that most coaches—even coaches at the very top of their game—do not know how to create high-paying, high-performing and highly committed clients.
 
 Once you embrace that challenge and drop all the unwarranted pessimism around imaginary “competition” and “low demand,” your career will take off.
+

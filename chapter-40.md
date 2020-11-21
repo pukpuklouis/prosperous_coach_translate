@@ -1,6 +1,8 @@
 # 第四十章
 
-# Stop being a pro bono bonehead
+## 第四十章
+
+## Stop being a pro bono bonehead
 
 by Steve
 
@@ -21,3 +23,4 @@ You help the world more if you do your altruistic work after your coaching pract
 If you were working for an employer in a nine-to-five job, the employer would not give you time off real work for you to “help others.” You’d have to do that after your professional work was complete.
 
 One of the biggest problems coaches have is not bringing the same professional work ethic to their coaching practices that they would to a “real” job. Once a coach wakes up to that, she is back on track toward prosperity.
+

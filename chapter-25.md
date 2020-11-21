@@ -1,6 +1,8 @@
 # 第二十五章
 
-# Sell the experience, not the concept
+## 第二十五章
+
+## Sell the experience, not the concept
 
 by Steve
 
@@ -13,3 +15,4 @@ Therefore I really want to take my time when I first talk to a client. And if my
 I always want to be the person who demonstrates what other people merely promise.
 
 I have had many clients who could not “afford” me who ended up working with me because they sold something, or found a sponsor or benefactor, or got a loan, etc., so I learned never to factor in my own estimation of their ability to pay. I leave that up to them. People become really resourceful when they desire something. People usually get what they desire strongly in life. And I can only cause them to desire my coaching by making an amazing demonstration of what it can do for them.
+

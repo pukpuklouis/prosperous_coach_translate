@@ -1,6 +1,8 @@
 # 第二十二章
 
-# Don’t close a sale—open a relationship
+## 第二十二章
+
+## Don’t close a sale—open a relationship
 
 by Rich
 
@@ -32,4 +34,5 @@ She said yes and called me. I explored her dreams with her for two hours. And at
 
 Then she sent me a check—a year and a half after we first met.
 
-Imagine if I’d tried to close a sale at the beginning and then walked away when that didn’t happen. Coaches do that all the time. They fail to see that this is a relationship business. 
+Imagine if I’d tried to close a sale at the beginning and then walked away when that didn’t happen. Coaches do that all the time. They fail to see that this is a relationship business.
+

@@ -1,6 +1,8 @@
 # 第三十八章
 
-# Strength comes from getting uncomfortable
+## 第三十八章
+
+## Strength comes from getting uncomfortable
 
 by Rich
 
@@ -15,3 +17,4 @@ I replied, “I want you to have hesitation before you begin coaching with me. T
 In my experience, the more my clients commit, the more they achieve—because they are fully engaged. So if you wish to create a coaching practice with high-end, high-performing clients, you have to be willing to challenge them to make a big commitment in order to sign up with you.
 
 Get comfortable feeling uncomfortable and your world will change.
+

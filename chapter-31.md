@@ -1,6 +1,8 @@
 # 第三十一章
 
-# Coach and coach and coach
+## 第三十一章
+
+## Coach and coach and coach
 
 by Steve
 
@@ -19,3 +21,4 @@ Take some interested person who has “no funds” and coach him for two hours. 
 Many of my most lucrative coaching contracts came from people who had no resources. Or so they thought. Until their lives were so profoundly changed by a long coaching session that they went to their Aunt Millie and borrowed money from her to continue working with me. Aunt Millie saw it as an investment in her nephew’s education. It worked for everyone.
 
 Coaching leads to more coaching.
+

@@ -1,6 +1,8 @@
 # 第四十八章
 
-# The secret: there is no secret
+## 第四十八章
+
+## The secret: there is no secret
 
 by Rich
 
@@ -48,7 +50,7 @@ But there is no secret.
 
 I know coaches who write a weekly newsletter and coaches who use internet marketing. My own coach charges $150,000 a year. You pay in advance and fly to Arizona for your face-to-face coaching sessions. But I also know a successful coach who will only coach over the phone in fifteen-minute sessions. And one of the most successful women coaches I know runs workshops with three other female colleagues for powerful and unique four-on-one coaching sessions.
 
-One of my friends has been a coach for over fifteen years and he will still only coach you for a maximum of three months because he puts such a high value on freedom. If you want to sign a six-month agreement, he says (with a smile): “No. I don’t know what I’ll want to be doing in three months’ time. But if in three months you would still like coaching and I would still like to be coaching, then we’ll talk.”
+One of my friends has been a coach for over fifteen years and he will still only coach you for a maximum of three months because he puts such a high value on freedom. If you want to sign a six-month agreement, he says \(with a smile\): “No. I don’t know what I’ll want to be doing in three months’ time. But if in three months you would still like coaching and I would still like to be coaching, then we’ll talk.”
 
 Me, I rarely coach for anything less than thirteen months because I love to watch my client’s total transformation over the course of a year together.
 
@@ -63,3 +65,4 @@ Be creative.
 Be you.
 
 There is no secret.
+

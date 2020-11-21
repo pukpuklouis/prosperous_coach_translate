@@ -1,6 +1,8 @@
 # 第五十九章
 
-# You can do this as a blue collar job
+## 第五十九章
+
+## You can do this as a blue collar job
 
 by Steve
 
@@ -10,7 +12,7 @@ She asked me what to do “when my energy gets low, and my hopes do too??!! That
 
 This was a wonderful question and I’m glad she asked it. In my non-prosperous years I would ask this question a lot. What do I do when I lose my hope and energy?
 
-And then, in later years, because I had a rather wonderful coach, I was able to ask him the same question about what I should do when hope was gone. (Which is why coaching is so great—you get to ask and solve anything and everything.) He allowed me to see something.
+And then, in later years, because I had a rather wonderful coach, I was able to ask him the same question about what I should do when hope was gone. \(Which is why coaching is so great—you get to ask and solve anything and everything.\) He allowed me to see something.
 
 If I have a game to play, my energy and hope are not problems. They are high. But if I have no game, no process goals, no scheduling of my own activities, then my moods plunge.
 
@@ -48,5 +50,5 @@ Put up an activity scoreboard. Make it a game. Declare destinations. Follow your
 
 Life can be a full of hope and energy for all of us blue collar coaches.
 
-Free advice is usually taken with a grain of salt.
-But a paid session can change someone’s life forever.
+Free advice is usually taken with a grain of salt. But a paid session can change someone’s life forever.
+

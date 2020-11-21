@@ -1,6 +1,8 @@
 # 第二十八章
 
-# Always be creating clients
+## 第二十八章
+
+## Always be creating clients
 
 by Rich
 
@@ -10,7 +12,7 @@ William Shakespeare
 
 NEW COACHES OFTEN HAVE no idea of the boom-bust cycle that most coaches face.
 
-They work hard to enroll their first few clients and then, with a sense of pride, they dive into their coaching together. After a few months, these clients gradually complete their coaching agreements and suddenly the coach (who had been thoroughly enjoying their life and business only a few weeks before) discovers that they are now back to having no clients. And no income. And they have to begin the cycle all over again.
+They work hard to enroll their first few clients and then, with a sense of pride, they dive into their coaching together. After a few months, these clients gradually complete their coaching agreements and suddenly the coach \(who had been thoroughly enjoying their life and business only a few weeks before\) discovers that they are now back to having no clients. And no income. And they have to begin the cycle all over again.
 
 This is tiring. It is draining and dispiriting.
 
@@ -29,3 +31,4 @@ I met a woman in an airport and we began to talk. She asked what I do and I expl
 “Always be creating clients” is not about hard work. And if it feels like work then it’s time to change the way you approach it.
 
 It’s more about a perspective on life. It’s a reminder that all around you are people you can serve. There are people all around you who would love your support. Your only job is to ask if you can help.
+

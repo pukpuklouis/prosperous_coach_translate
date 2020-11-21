@@ -1,6 +1,8 @@
 # 第五十七章
 
-# Time to stop being so busy
+## 第五十七章
+
+## Time to stop being so busy
 
 by Steve
 
@@ -15,3 +17,4 @@ I mean, I really took my time with those. I slowed down and connected with the t
 Most busyness comes from our wild, ongoing attempts to please others. Notice I didn’t say serve others—I said to please them and win their ongoing approval. That kind of shallow, egocentric “busywork” is an enemy to your financial success.
 
 Pleasing others is the real reason why people don’t succeed. And in the end pleasing others doesn’t win any respect from them either. So you lose both games. Be bold and hold to your boundaries. Look at the activities and people you have placed a star next to and choose them. Nourish those relationships slowly and creatively.
+

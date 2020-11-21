@@ -1,6 +1,8 @@
 # 第三十二章
 
-# Learn to love those feisty no’s
+## 第三十二章
+
+## Learn to love those feisty no’s
 
 by Steve
 
@@ -16,6 +18,5 @@ Yes lives in the land of no. Without no there could be no yes. No means you are 
 
 If someone in another city, unseen by you, flipped a coin a lot of times, could you tell me how many heads they got? No, you couldn’t even make a good guess unless you knew more information, right? Okay, well, what if I told you how many tails they got? Would you then be in a better position to guess how many heads? Absolutely! Why? Tails and heads go together! You get them both when you flip.
 
-
-
 Yes and no go together, too. So if I know how many no’s you got last year, I’m in a much better position to tell you how many clients you have.
+

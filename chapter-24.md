@@ -1,6 +1,8 @@
 # 第二十四章
 
-# Learn to enjoy enrolling
+## 第二十四章
+
+## Learn to enjoy enrolling
 
 by Steve
 
@@ -13,3 +15,4 @@ We are always good at what we enjoy, and we always enjoy what we’re good at.
 Then what comes first, enjoying it or being good at it?
 
 It happens together. As skill improves so does enjoyment, and as enjoyment increases so does skill. Joy and strength arise simultaneously for the person who stays in action long enough.
+

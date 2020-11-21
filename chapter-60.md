@@ -1,6 +1,8 @@
 # 第六十章
 
-# No one ever pays for coaching
+## 第六十章
+
+## No one ever pays for coaching
 
 by Rich
 
@@ -18,11 +20,9 @@ When I meet someone interested in coaching, I ask them to tell me about their dr
 
 I once had a session with a sixty-five-year-old woman who was exploring coaching with me. At the end of our conversation she cried. She told me she was crying because she had never shared her dreams with a living soul, including her husband.
 
-So the truth is your clients are not really paying for your coaching. Or even for your way of being. (Although both are important.)
+So the truth is your clients are not really paying for your coaching. Or even for your way of being. \(Although both are important.\)
 
 Your clients are paying for their dreams. And their dreams are priceless.
-
-
 
 If the person in front of you has a big enough dream and they get that spending time with you will help them to achieve it, they will hire you.
 
@@ -45,3 +45,4 @@ Remember, too, that money is only good for one thing: it’s good for buying stu
 Break that cycle quickly as a coach.
 
 Stop tracking and celebrating your billings. They are out of your control. Instead, celebrate the amount of money you make in proposals. Proposals are in your control. Billings are not. Increase your proposals and your billings will follow.
+

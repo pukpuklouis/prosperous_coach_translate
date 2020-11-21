@@ -1,6 +1,8 @@
 # 第五十三章
 
-# Never propose marriage ten days after you meet
+## 第五十三章
+
+## Never propose marriage ten days after you meet
 
 by Rich
 
@@ -25,3 +27,4 @@ These days I’ll simply tell them that.
 Steve and I have a friend who is a coach who fills his practice every year by writing a few handwritten letters to the five to ten people he would absolutely love to coach that year. Each letter is so personalized with so much attention on that individual that they cannot help but be moved by this man.
 
 So: who would you love to coach?
+

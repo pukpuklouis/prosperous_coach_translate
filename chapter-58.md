@@ -1,6 +1,8 @@
 # 第五十八章
 
-# Slow down to speed up success
+## 第五十八章
+
+## Slow down to speed up success
 
 by Rich
 
@@ -24,8 +26,6 @@ Slow down your conversations with clients and you will notice things they can’
 
 Slow down the time you spend preparing for a meeting with a new client and you will think of questions that no one has ever asked them. Slow down enough to get a sense of your client’s world before you meet them and you will be more present for them than anyone else has ever been for them.
 
-
-
 Thomas Edison was a genius who invented the phonograph, the motion picture camera and the electric light bulb. But he was also a terrible fisherman. He used to spend an hour almost every day fishing but he never caught any fish.
 
 If you are wondering why a genius would be obsessed with fishing when he was so bad at it, you are not the only one. Someone once asked him why he was such a poor fisherman. He replied, “I never caught any fish because I never used any bait.”
@@ -37,3 +37,4 @@ It was definitely no coincidence that the world’s best scientist was also the 
 Practice regularly setting aside time for yourself to do nothing. Put time on your calendar for committed, quiet, creative time. And practice making this time as important a priority as a meeting with a client.
 
 Even coaches who are already thriving and who want to get to the next level can benefit from slowing down their enrollment process.
+
