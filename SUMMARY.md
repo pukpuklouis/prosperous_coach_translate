@@ -80,3 +80,5 @@
 * [Appendices 5](Appendices-5.md)
 * [Appendices 6](Appendices-6.md)
 * [Appendices 7](Appendices-7.md)
+* [Appendices 8](Appendices-8.md)
+* [you are not alone](you-are-not-alone.md)
