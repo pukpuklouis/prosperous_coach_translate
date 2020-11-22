@@ -1,6 +1,8 @@
+# 附錄 6
+
 Appendix 6
 
-# Fear and excuses
+## Fear and excuses
 
 Here’s how you handle some of the most common thoughts that stand in the way of succeeding as a coach.
 
@@ -30,8 +32,9 @@ If you don’t believe enough in coaching to invest in your own coach, why would
 
 **I keep getting no’s.**
 
-Awesome! Play the NO game (see Appendix 5). But if you only ever get no’s, it either means your coaching is not powerful enough or you are in too much of a rush. Creating high—paying clients cannot be rushed.
+Awesome! Play the NO game \(see Appendix 5\). But if you only ever get no’s, it either means your coaching is not powerful enough or you are in too much of a rush. Creating high—paying clients cannot be rushed.
 
 **I don’t know how to get into the corporate world.**
 
 Start with what you know. You have a background in accounting, law, marketing—then seek out the people you know because you know their secret dreams and their secret fears better than anyone.
+

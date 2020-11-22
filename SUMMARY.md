@@ -79,9 +79,10 @@
 * [附錄 4](appendices-4.md)
 * [附錄 5](appendices-5.md)
 * [附錄 6](appendices-6.md)
-* [附錄 7](appendices-7.md)
+* [附錄 7](fu-lu-7.md)
 * [you are not alone](you-are-not-alone.md)
 * [a note from rich](a-note-from-rich.md)
 * [about the authors](about-the-authors.md)
 * [What Rich Litvin’s up to](what-rich-litvins-up-to.md)
 * [What Steve Chandler’s up to](what-steve-chandlers-up-to.md)
+

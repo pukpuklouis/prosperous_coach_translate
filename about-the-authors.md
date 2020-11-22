@@ -21,3 +21,4 @@ Chandler is the author and co-author of dozens of books, including the bestselle
 Chandler is a graduate of both the University of Arizona \(Creative Writing and Political Science\) and the elite Defense Language Institute, Presidio of Monterey, California \(Russian language\). He is a Cold War veteran, with four years of military service at the U.S. Army Security Agency in Berlin, Germany, and Psychological Warfare at Fort Bragg, North Carolina.
 
 Chandler lives outside of Phoenix, Arizona, and can be reached at www.stevechandler.com.
+
