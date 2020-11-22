@@ -1,8 +1,6 @@
 # 第十三章
 
-## 第十三章
-
-## 好吧，我們來做個大膽的承諾：這個真的會帶來客戶
+## 好吧，我們來做個大膽的承諾：這麼做真的會帶來客戶
 
 By Steve
 
@@ -14,29 +12,20 @@ By Steve
 
 1. **賣給他們的是指引的體驗而不是教練的概念**，好讓到客戶只需要選擇要不要繼續給你指引。
 2. **絕對不打陌生電話**，只透過熟識的人介紹。
-3. 快速行動。**明白激情衝動的短暫性**。
+3. **明白激情衝動的短暫性**，動作要快。
 4. **不要使用email**(特別是說服或是對質的時候)在跟新客戶開始對話時，可以的話盡量用電話或是面對面。
 5. **善用聊天**. 安排好聊天的時，安排你的每一天就是與人聊天。直到排滿你的客戶清單。
-6. **運用肯定的內容而不是你相信** 講你很肯定的事情，累積你的客戶成功案例。
-7. Share stories and case histories versus features and benefits.
-8. Find the goal behind the client’s goal. Ask about your client’s clients.
-9. Needy is creepy. Stay with their wants versus your needs.
-10. The Lamp Post Metaphor, from Michael “Neill: Be the first and only totally committed listener in their lives.
+6. **運用肯定的內容而不是相信** 講你很肯定的事情，開始累積你的客戶成功案例。
+7. **分享故事跟過去案例** 而不是講你的特色、好處。
+8. **找到客戶目標背後的目標** 可以問問關於你的客戶的客戶是怎樣的。
+9. **糾纏不放是很討厭的** 把話題放在客戶想要的而不是你需要的。
+10. **電線竿指引法** 來自麥可尼爾：成為你客戶人生當中第一個也是唯一的完成承諾的聆聽者。
+11. **當你聽到yes/no的時候都保持純真** yes總是深藏在許多的no之下，如果他們說“我還要想一想”表示對話還沒有結束。
+12. **在成交前展現你的領導力** 引導所有的行動。
 
-    Maintain innocence in getting your yes/no. Yes lives in the land of no. If they have to “go think about it” the conversation was not complete.
-
-    Leadership in the close. Direct all the action.
-
-    Slow down. All the wealth you want is right there in the next conversation. Don’t have a huge to-do list, just be with Who’s Next.
-
-    Get a coach. A coach without a coach is like a doctor who won’t see a doctor. Get a coach who will build your practice and change your professional life.
-
-    Leave the conversation in a context of possibility, not a context of affordability.
-
-    Limitation creates value. Make sure you are the one doing the auditioning of the client, and not the other way around.
-
-    Be constantly aware of role reversal. Do not surrender your power, leadership and role as the coach in the conversation.
-
-    Be great at what you do... not just good. Have routines, habits and practices that guarantee that you become better and better as a coach every day. Read books, see movies, listen to audio and talk to people who make you better as a coach. Every day.
-
-No high-performing client was ever created outside of a conversation. And no high-paying client was ever created outside of a powerful conversation.
+13. **放慢你的腳步** 所有你想要的財富都在你的下一個聊天中。不要搞出一個複雜的待辦清單，著眼放在誰會是下一個。
+14. **找一個教練** 一個沒有教練的教練就好像不看醫生的醫生。找一個教練可以幫助你建立事業改變你的專業。
+15. **把對談放在可能性** 而不是放在可負擔性上面。
+16. **限量創造價值** 確保是你在挑選客戶而不是客戶挑選你。
+17. **時刻留意不要被反主為客** 不要放棄你的力量，在對談的過程當中作為教練成為帶領的角色。
+18. **成為你行業最頂尖的...不只是好而已** 建立你的每日慣例、習慣跟鍛鍊，讓你可以一天比一天成為更好的教練。閱讀、聽播客或是那些可以讓你可以成為更好的教練的人物訪談，每天都做。
