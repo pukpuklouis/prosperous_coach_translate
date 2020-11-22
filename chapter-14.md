@@ -1,7 +1,5 @@
 # 第十四章
 
-## 第十四章
-
 ## Have the disciplines be fun
 
 by Steve

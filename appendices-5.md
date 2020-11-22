@@ -9,4 +9,3 @@ THERE COMES A MOMENT when I set almost every one of my clients who is a coach or
 Most coaches feel so rejected by the no’s that they stop asking. Playing the NO game and having your only goal to see how many potential clients can say no to you changes everything. Suddenly coaches are excited to make proposals and to say big numbers out loud.
 
 Make your measure of success the number of no’s you collect each day. As Byron Katie says: “You can have anything you want in life, if you are willing to ask a thousand people…”
-
