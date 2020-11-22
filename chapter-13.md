@@ -16,8 +16,8 @@ By Steve
 2. **絕對不打陌生電話**，只透過熟識的人介紹。
 3. 快速行動。**明白激情衝動的短暫性**。
 4. **不要使用email**(特別是說服或是對質的時候)在跟新客戶開始對話時，可以的話盡量用電話或是面對面。
-5. 善用聊天. Schedule conversations. Fill the day with conversations until your client list is full.
-6. Use certainty versus belief. Speak from what you are certain of. Keep a success list.
+5. **善用聊天**. 安排好聊天的時，安排你的每一天就是與人聊天。直到排滿你的客戶清單。
+6. **運用肯定的內容而不是你相信** 講你很肯定的事情，累積你的客戶成功案例。
 7. Share stories and case histories versus features and benefits.
 8. Find the goal behind the client’s goal. Ask about your client’s clients.
 9. Needy is creepy. Stay with their wants versus your needs.
