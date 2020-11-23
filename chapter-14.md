@@ -13,21 +13,23 @@ by Steve
 
 **原則 #1: 賣的是指引體驗而不是教練概念**
 最後潛在客戶的決定必須是放在否要繼續與你合作。將你所有的影響力、專注力、時間和精力投注在指引潛在客戶就好像你正在指引高收費客戶一樣，使他們更容易做出決定。
+
 **原則 #2: 別打陌生電話**
 運用你的人際圈，在指引教練圈子或是在獲取客戶的情況下，打陌生電話實在沒有必要。打一通陌生電話然後在你不太認識潛在客戶他也完全不認識你的情況下要賣出指引是行不通的方式。是很浪費時間，也沒有必要。我們每個人都有自己的人際圈也都互相認識，我們可以互相照顧、我們都認識一些也認識你的人。圈子很小，我們很快就可以拉近一段新關係。
 因此有很多方法可以在跟潛在客戶溝通前做好準備，甚至過度準備。我可以演練一下讓我更了解接下來要碰面的潛在客戶，也讓我更迫不及待的想要見他們。 別打陌生電話，真的。你已經認識足夠多的人他們認識一些人，真的有足夠多的人。如果你生活的節奏慢一點就會發現這些關係。
 
 **原則 #3: 明白激情衝動的短暫性**
-衝動是會消褪的，所以如果有人很迫不及待的想要跟你合作，他們對於被你指引是有特定程度的興趣跟衝動的。但要明白清楚關於衝動是會隨著時間消退。所以從現在開始的一個禮拜裡，那種感受不會像當下這麼鮮明與強烈，而且沒有其他方法能夠挺止衝動的消褪。
-但還是有很多教練依然不了解這件事！他們總是擔心或是不明白為什麼人們離開之後就沒有再回覆了，就算那些說想要被指引的客戶也會這樣！我的教練史蒂夫・哈蒂森這麼多年來教會我(至少15年來)就是關於"事件-行動"的區分。一但事件發生後，要盡可能快地採取行動。假設有人因為聽到我在講座上的分享然後幾天後他emaile給我說，"嗨 我很喜歡你的分享內容很棒，我有興趣也許可以被你指引一下" 現在這時候他很有熱情！我是不會想要等過了幾天，或是浪費了很多時間，因為衝動是會消褪的。就好像人生當中很多的事情一樣，你去看完演唱會隔天你會不斷的跟人家分享你看完有多棒，但是過了幾個禮拜可能還會想起講一下，幾年過後可能你還在想"我有去看過這場演唱會嗎？"
+衝動是會消褪的，所以如果有人很迫不及待的想要跟你合作，他們對於被你指引是有特定程度的興趣跟衝動的。但要明白清楚關於衝動是會隨著時間消退。所以從現在開始的一個禮拜裡，那種感受不會像當下這麼鮮明與強烈，而且沒有其他方法能夠挺止衝動的消褪。\
+但還是有很多教練依然不了解這件事！他們總是擔心或是不明白為什麼人們離開之後就沒有再回覆了，就算那些說想要被指引的客戶也會這樣！我的教練史蒂夫・哈蒂森這麼多年來教會我(至少15年來)就是關於"事件-行動"的區分。一但事件發生後，要盡可能快地採取行動。假設有人因為聽到我在講座上的分享然後幾天後他emaile給我說，"嗨 我很喜歡你的分享內容很棒，我有興趣也許可以被你指引一下" 現在這時候他很有熱情！我是不會想要等過了幾天，或是浪費了很多時間，因為衝動是會消褪的。就好像人生當中很多的事情一樣，你去看完演唱會隔天你會不斷的跟人家分享你看完有多棒，但是過了幾個禮拜可能還會想起講一下，幾年過後可能你還在想"我有去看過這場演唱會嗎？" \
 所以衝動為隨著時間慢慢消褪，不過如果可以看清楚這一點，就可以好好的利用這個，我可以馬上行動。
 
-**原則 \#4: Do not use email.**
-Now this is kind of an overstatement, because of course email has some effective uses. There are some things email can do for you, but most of the coaches I coach overuse it. They make the mistake of trying to use email for persuasion. They try to use email to convince people of something or to get them to see the value of something. And it is ineffective that way. Because when people receive an email, quite often these days it’s on their phone! As they step out of a meeting or as they get out of their car, they ask themselves, “What can I delete quickly here? What do I have to respond to? What can I get rid of? I’ve got so much clutter coming in.
+**原則 #4: 不要使用email**
+在這裡形容的有一點誇張，當然email是可以很有效的運用，也可為你做到一些事情。但是決大部分我指引的教練們都過度使用它。他們試著用email來勸說、或是試著要說服客戶看見某些事情的價值，只不過這方法不是很有效？因為現在大部分的人都在手機上收email!通常都是他們剛開完會或是剛下車，他們看到以後都在心裡想著"我怎樣可以趕快刪掉這些東西？"或是"我要怎麼回這個信？" 、"我要怎麼擺脫這些"、"我已經夠忙的了"。
 
-Your email enters that crowd of messages. You don’t want that. Coaching isn’t appropriate for that kind of cluttered, frenzied world. Coaching is a very intimate experience, so you don’t want to send a long email explaining the value of your coaching. It will not arrive in the same spirit in which it was sent. Please be awake to that. So many of my clients in coaching have sent an email to a prospect who was considering the coaching, and it transpires that if they had only had a conversation something great would have happened.
+而你寄出來的信都會擠在這些訊息當中，而你是不會想要這樣的。指引並不適合在這種混亂、瘋狂的世界裡進行。指引是個非常緊密的體驗，所以你是不會想要用一封寫很長的信說明指引的價值是什麼。就算你寫的很好也沒辦法把真正的精髓傳遞給對方。所以要留意這個。我有許多指引客戶依然會對他們的潛在客戶發email，但事實上如果他們真的進行對談的話，一些好事情就這樣會發生。
+但相反的他們選擇發出一封很長的信，但現在人收了信以後，可能會看完或是看一半、不然就是放在那裡過一段時間以後再刪掉。這些都會扼殺掉一段關係，特別是在指引關係裡。所以永遠找機會開啟一段對談。這會講到下一個原則
 
-Instead they sent a long email, and now the recipient is considering the email. They read it, read half of it or… save it for deleting later. It’s a good way to kill a relationship, especially in the world of coaching. So always look for the possibility of a conversation. So that’s Discipline \#5: Honor conversations. Use conversations, schedule conversations, have your day be about the next conversation you are going to have, because if you do that, you will get clients. All coaching agreements occur inside of a conversation. Please see that. No sale has ever occurred outside of a conversation.
+**原則 #5: 善用聊天** Use conversations, schedule conversations, have your day be about the next conversation you are going to have, because if you do that, you will get clients. All coaching agreements occur inside of a conversation. Please see that. No sale has ever occurred outside of a conversation.
 
 Because if you can see that all coaching agreements occur inside of a conversation, you will have your primary purpose today to be inside of a conversation instead of pacing around, checking your email fifty times a day, handling family calls, writing a blog, wondering if you should write a book, going on social media, networking, trying some marketing—all those things we do that don’t get us clients. All those things that eat up our whole day when we could have been in a conversation. Discipline \#6: Certainty versus belief. Use certainty. That’s your discipline. In other words, when speaking about what you do and the track record you have for coaching, use certainty. It improves your voice tone. Do not try to “believe in” yourself. Do not have selling be an emotional crisis about whether you are worthy of your fee. That will send you south. That will send you down the ladder. That will have you not connect with people.
 
