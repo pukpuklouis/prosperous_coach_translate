@@ -35,8 +35,9 @@ by Steve
 因為如果你可以明白所有的指引協議都是發生在聊天裡的時候，你是不會讓自己忙東忙西、一天打開你的Email 50次，處理家裡的雜事、寫blog、想著是不是要寫書、是不是要在社群網路發文章，參加社交活動、學習一下如何行銷。這些事情都不會幫助我們獲得客戶。這些所有的事情都會佔用我們一天裡本來可以用來與人聊天的時間。
 
 **原則 #6: 運用肯定的內容而不是相信**
-使用肯定的句子，這個就是你的原則。換句話說當人家問你在做什麼的時候或是你在指引上面有什麼樣的結果時，用肯定句，這會影響你的語調，不要試著"相信"你自己。不要把銷售變成了覺得自己沒有價值不值得收這麼高的價碼的情緒危機。
- Use certainty. That’s your discipline. In other words, when speaking about what you do and the track record you have for coaching, use certainty. It improves your voice tone. Do not try to “believe in” yourself. Do not have selling be an emotional crisis about whether you are worthy of your fee. That will send you south. That will send you down the ladder. That will have you not connect with people.
+使用肯定的句子，這個就是你的原則。換句話說當人家問你在做什麼的時候或是你在指引上面有什麼樣的結果時，用肯定句，這會影響你的語調，不要試著"相信"你自己。不要把銷售變成了覺得自己沒有價值不值得收這麼高的價碼的情緒危機。這會讓你變得沒有價值、少了成交的機會，也讓你變得不在與人聯繫。
+這個的解藥是什麼呢？ 就是清楚明白你很肯定的是什麼。"我剛跟我在倫敦的客戶講完電話。"這是個肯定句也是絕對的事實。把一些關於你的指引的具體結果可以很快的說出來。甚至很多剛開始指引的教練我都會要求他們把這些結果寫在紙上。這樣子我也不需要"很有信心"的講、或是要"相信自己"講的話。
+"我其中一個客戶在上一季的時候營收就達到20%的增長。"當我們的對談當中，都有這些清楚的事實，我對我的客戶很明確、我下的功夫很肯定、客戶達成的目標也很清晰。我自然而然不會緊張也不會害怕，我要很深入的與這些肯定的事實
 
 “The antidote to that is knowing what you are certain of. And then speaking with absolute certainty. “I just got off the phone with a client in London” is a statement of absolute fact. Keep at your fingertips things that are factually true about your work \(and with a lot of beginning coaches I have them keep this list literally written out\). I don’t need to “have confidence” or learn to believe in myself to say those facts to the person I am talking to. “One of my clients just had a 20% revenue increase last quarter.” When I fill my conversation with the things I am certain about—clients I have, work I have done, accomplishments they have achieved, I won’t get nervous and I won’t get scared. I want to really be connected with certainty. Because if I go the other direction—if I go in the direction of whether I am deeply, personally, really “worthy,” then fear enters in.
 
