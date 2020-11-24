@@ -29,9 +29,14 @@ by Steve
 而你寄出來的信都會擠在這些訊息當中，而你是不會想要這樣的。指引並不適合在這種混亂、瘋狂的世界裡進行。指引是個非常緊密的體驗，所以你是不會想要用一封寫很長的信說明指引的價值是什麼。就算你寫的很好也沒辦法把真正的精髓傳遞給對方。所以要留意這個。我有許多指引客戶依然會對他們的潛在客戶發email，但事實上如果他們真的進行對談的話，一些好事情就這樣會發生。
 但相反的他們選擇發出一封很長的信，但現在人收了信以後，可能會看完或是看一半、不然就是放在那裡過一段時間以後再刪掉。這些都會扼殺掉一段關係，特別是在指引關係裡。所以永遠找機會開啟一段對談。這會講到下一個原則
 
-**原則 #5: 善用聊天** Use conversations, schedule conversations, have your day be about the next conversation you are going to have, because if you do that, you will get clients. All coaching agreements occur inside of a conversation. Please see that. No sale has ever occurred outside of a conversation.
+**原則 #5: 善用聊天**
+善用聊天、計畫好下一段聊天，讓你的每一天都是關於下一個你要跟誰聊天。因為如果你這麼做，最終你會找到你的客戶。所有的指引協議都是發生在一段聊天裡，看清楚沒有一個銷售是不需從聊天開始的。
 
-Because if you can see that all coaching agreements occur inside of a conversation, you will have your primary purpose today to be inside of a conversation instead of pacing around, checking your email fifty times a day, handling family calls, writing a blog, wondering if you should write a book, going on social media, networking, trying some marketing—all those things we do that don’t get us clients. All those things that eat up our whole day when we could have been in a conversation. Discipline \#6: Certainty versus belief. Use certainty. That’s your discipline. In other words, when speaking about what you do and the track record you have for coaching, use certainty. It improves your voice tone. Do not try to “believe in” yourself. Do not have selling be an emotional crisis about whether you are worthy of your fee. That will send you south. That will send you down the ladder. That will have you not connect with people.
+因為如果你可以明白所有的指引協議都是發生在聊天裡的時候，你是不會讓自己忙東忙西、一天打開你的Email 50次，處理家裡的雜事、寫blog、想著是不是要寫書、是不是要在社群網路發文章，參加社交活動、學習一下如何行銷。這些事情都不會幫助我們獲得客戶。這些所有的事情都會佔用我們一天裡本來可以用來與人聊天的時間。
+
+**原則 #6: 運用肯定的內容而不是相信**
+使用肯定的句子，這個就是你的原則。換句話說當人家問你在做什麼的時候或是你在指引上面有什麼樣的結果時，用肯定句，這會影響你的語調，不要試著"相信"你自己。不要把銷售變成了覺得自己沒有價值不值得收這麼高的價碼的情緒危機。
+ Use certainty. That’s your discipline. In other words, when speaking about what you do and the track record you have for coaching, use certainty. It improves your voice tone. Do not try to “believe in” yourself. Do not have selling be an emotional crisis about whether you are worthy of your fee. That will send you south. That will send you down the ladder. That will have you not connect with people.
 
 “The antidote to that is knowing what you are certain of. And then speaking with absolute certainty. “I just got off the phone with a client in London” is a statement of absolute fact. Keep at your fingertips things that are factually true about your work \(and with a lot of beginning coaches I have them keep this list literally written out\). I don’t need to “have confidence” or learn to believe in myself to say those facts to the person I am talking to. “One of my clients just had a 20% revenue increase last quarter.” When I fill my conversation with the things I am certain about—clients I have, work I have done, accomplishments they have achieved, I won’t get nervous and I won’t get scared. I want to really be connected with certainty. Because if I go the other direction—if I go in the direction of whether I am deeply, personally, really “worthy,” then fear enters in.
 
