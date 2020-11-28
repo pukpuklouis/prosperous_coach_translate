@@ -1,10 +1,9 @@
 # 第十五章
 
-## Things you should simply stop doing
+## 那些你不該繼續做的事情
+by Rich 
 
-by Rich THERE IS NEVER A REASON to make a cold call. Stop making them. Stop wasting time on that website and that business card. Stop hiding behind lengthy emails to potential clients. Stop your need to create a huge email list. Stop your thirty-minute taster sessions. Stop trying to “market” what you do. Stop going to networking events. Stop trying to “get the word out.”
-
-If you are desperately trying to stay ahead of the internet marketing curve you are playing the wrong game. The internet is moving so fast you couldn’t outrun it if you tried.
-
-No high-performing client was ever created outside of a conversation. And no high-paying client was ever created outside of a powerful conversation.”
+沒有任何理由你應該要打陌生電話，不要再打了。不要在花時間在網站、名片。不要把你跟潛在客戶用又長又多字的email隔離開來。不要再花時間想著怎麼累積你的email名單。不要在用你的免費30分鐘指引試用。不要在試著”行銷”你在做什麼。不要再去參加什麼社交活動。不要再試著”讓市場認識你”。
+如果你拼老命的想要趕在網路行銷的浪潮之上的話，那麼玩錯遊戲了。網路的變化實在太快了，如果你還在試著要趕上那樣的變化的話你是超越不了的。
+沒有任何高成就的客戶不是從談話中談出來的，也不會有任何高收費的客戶不是從一段精彩難忘的談話中談出來的。
 

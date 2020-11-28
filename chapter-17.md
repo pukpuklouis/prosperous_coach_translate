@@ -1,14 +1,9 @@
 # 第十七章
 
-## 第十七章
-
-## Step 1: Connect
+## 步驟 1: 連結
 
 by Rich
 
-THAT’S IT. ONLY CONNECT. Ask yourself, who would I LOVE to speak to? And then call them. Bring your humor and curiosity. Be genuinely interested in what they are up to.
-
-“Hey Sarah. Long time no speak. How’s things? How’s the family? How’s the business? What are you up to? What’s your next big project? What’s your biggest challenge right now?”
-
-At some point, when you are genuinely interested, you may see a way that you can support or be of service to her. There will be a book you can recommend. Or an article you can send her. Or a client you can refer to her. Sometimes you’ll notice that the person you’re speaking to is facing a challenge. Maybe they’re struggling to turn a dream into a clear vision. Maybe they just inspire you. That’s when you go to the next step...”
-
+就這樣，只要連結。問你自己，什麼樣的人我喜歡跟他們說話？然後打電話給他們。帶上你的幽默感跟好奇心，真心的去了解他們最近正在經歷什麼。
+“嗨 莎拉，好久沒有一起聊聊了，最近如何？家人最近怎麼樣？生意做得如何？你最近怎麼樣？最近在忙什麼計畫？你現在碰到最大的挑戰是什麼？”
+如果你是真心的對他們的生活感到有興趣，到了某一刻你會看見有什麼事你可以支持的到或是可以服務到他們的地方。可能是你建議他們看的書，或是一個可以發給他們的文章，或是可以轉介紹一個客戶給他。有的時候你會發現面前跟你說的這個人正在面對一些挑戰，可能是他們很難將夢想變成很清晰的願景，也許他們就是很感動到你，這個時候你就可以來到下一步...

@@ -1,22 +1,18 @@
 # 第十八章
 
-## 第十八章
+## 步驟 2: 邀請
 
-## Step 2: Invite
+by Rich 
 
-by Rich THERE ARE TWO LOVELY QUESTIONS that change everything for a coach who is creating clients. “Would you like some help with that?” And “Who do you know?” If you are talking to someone who you believe could really get value from spending time with you, there’s a simple question to ask them when you hear them describe their dream, their challenge, or their biggest fear: Would you like some help with that? If the answer is a clear yes, do not jump into coaching them in that very moment. Be like a doctor. If you meet a doctor at a party and you start to tell them about the problem with your knee, they won’t ask you to roll up your trouser leg! They’ll tell you to book an appointment. So be a professional coach. Not a social one. If the answer to your question, “Would you like some help with that?” is a clear yes, invite them to meet with you. In person is always best, but over the phone can work perfectly. Block out two hours for them. Let them know that you will create a life-changing coaching experience “Don’t be afraid to tell them that. Coaching IS life-changing. Even a single session.
+有兩個很可愛的問題可以改變正在創造客戶的教練的一切，那就是”你想要在這上面得到一些幫助嗎？”和“你還認識誰？”。 如果正在跟你說話的人是你覺得如果他如果被你指引是會真的有很大的幫助的話，可以在當你聽他們描述他們的夢想、挑戰、最大的恐懼時，你可以問一個簡單的問題：***你想要在這上面得到一些幫助嗎?***
+如果得到的答案是很清楚的 Yes，不要在這個時候就立刻變成了教練開始指引他們。要像個醫生一樣。如果你在派對上碰到醫生，然後你就開始講你膝蓋的問題，他們不會說那你把褲子捲起我看一下！他們會說那你跟我預約一個時間。所以你也是，做為一個專業的教練。不要做個愛社交的教練。如果你問了你想要在這上面得到一些幫助嗎?然後得到的答案是Yes，那麼邀請他們跟你約個時間見面，面對面講當然是最好的選擇，但是約講電話也是可以的。留下2小時的時間給他們，跟他們說會為他們創造出改變他們一生的指引經驗。 ”不用害羞講這樣的話，因為指引本身就是改變人一生的事情。” 就算只是一個環節都是。
 
-Then put a date in your calendar.
+然後將日期寫進你的行事曆裡。
 
-The alternative, if you are speaking to someone you either imagine may be open to coaching or may know someone who wants coaching is to ask the question, “Who do you know?” It is so gentle and creates so much space that the person you are speaking to can relax and really hear your question without any of the natural resistance that most coaches create when they are trying to “get” a client.
+另外一種情況，如果跟你談話的人可能對指引還保持開放的態度或是可能認識有人想要被指引的話，就可以問這個問題”你還認識誰？”這問題是很溫和也保有很大的空間的，被問的人可以很放鬆也真的聽進去你的問題而不會馬上有抗拒出現。特別是在教練們在試著”找”一個客戶的時候。
+“克莉絲丁，可以幫我個忙？ 我還有一個活動叫做自信女人沙龍還有一些空位，這個活動是給九名不可思議的女性，每位都是有力量、有自信及成功的女性，都在人生中達到很卓越的成就。撇除他們的成功紀錄，她也是準備好接受支持去成就被認為’不可能的’目標。你有沒有認識像這樣的女性？” 偶而你會聽你面前的人會說，”天阿 你說的那個人就是我啊！”但就算這活動不是他們有興趣的，他們也不會覺得你試著在逼他們做些什麼事情。
+而且就算你面前的人不是很有興趣，他們也都會停下來認真的想一想他們有沒有認識這樣的人。
+但如果你得到名字了，千萬不要說”謝謝，我再打給他們。” 事實上，相反你要做的是，開始好奇...”可以告訴我一些關於她的事情嗎？她最大的夢想是什麼？你覺得有什麼是在她生活中一直阻礙著她？她之前有被教練指引的經驗嗎？你覺得她開放接受指引嗎？為什麼你認為她如果跟我聊天的話會有助於她？” 最後談話結束時，如果感覺起來可能這個是個適合的客戶，你可以說：”可以請你的朋友打個電話給我，或是寫個email給我。你明白的我不打陌生電話的，就算是轉介紹也是。但是你可以跟她說這是你送給她的一份禮，跟她說我會為她保留兩小時的時間，我會創造出很難忘的指引體驗而且她碰到的困難也會被處理好。”
+讓你的邀請就好像你在邀請人來參加一個世界上最好玩的派對，指引真的是對大部分的人來說都是一份禮物。所以分享的時候不要猶豫，因為如果他們錯過了會很生氣的，而且就算對他們來說現在還不是時候，也完全沒有問題，因為總是會有其他人想要。
 
-“Christina, can you help me? I have a space available on The Confident Woman’s Salon. It’s a program for nine amazing women. Each woman is powerful, confident and successful. She has already achieved a great deal in life. And despite a track record of success, she is ready for support to achieve a goal that feels ‘impo ssible’ right now. Do you know a woman like that?” Every once in a while, the person in front of you will say, “Oh my gosh. That’s me!” But even if what you are creating is not for them, they won’t feel you’re trying to force something on them.
-
-And if this isn’t right for the person you are speaking to, they will pause and genuinely reflect on who they know.
-
-Then, when someone says a name to you, never say, “Thanks, I’ll call them.” In fact, do the opposite. Get curious... “Tell me about her. What’s her big dream? What do you think may be holding her back the most in life, right now? Has she ever experienced coaching before? Do you think she’d be open to coaching? “Why do you think she’d benefit from speaking to me?” At the end of this conversation, if it feels like there may be a fit, say something like: “Have your friend call me or email me. You see, I never cold call. Even for a referral. Tell her that this is my gift to her from you. Tell her that I’ll block out two hours for her. I’ll create a powerful coaching experience and we’ll get her challenges handled. Forever.”
-
-Make your invitations as if you are inviting people to the best party in the world. Coaching is such a gift to most people’s lives. Don’t hesitate to share it. Because they’d be crazy to miss it. But even if they’re not ready for it in this moment, that’s perfectly fine, because someone else will be.
-
-And when they are—that’s when you get to create your magic...”
-
+而且當他們需要的時候—就輪到你創造你的魔法了...

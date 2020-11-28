@@ -1,24 +1,20 @@
 # 第十九章
 
-## 第十九章
-
-## Step 3: Create
+## 步驟 3: 創造
 
 by Rich
 
-MOST COACHES LAUNCH INTO a bunch of logistics when you ask them about coaching. “Well, I speak to my clients once every two weeks for an hour.” Or, “We meet face-to-face once a month.” Or, “I’ll send you my free eBook.” Or, “I’ll subscribe you to my video series.” Or, “You’ll have access to my member site...”
+大部分的教練當你問他們關於指引，他們會開始講出很多事務上做的東西，”我會每隔兩週跟我的客戶講一個小時的電話”或”我們每個月會見面一次”或”我會寄給免費的電子書”或是”你可以進入到我的會員專屬網站...”
 
-The problem is: no one cares!
+但問題是： **沒有人在意這些！**
 
-Truly. Clients don’t care about what you have to offer. They don’t even care what you charge. They are too busy thinking about their problems or their dreams. Indeed, they only ever care about the answer to one question: can you help me?
+真的，客戶並不在乎你會提供他們什麼，他們甚至不在乎你的收費是多少。他們太忙著想著他們的問題或是他們的夢想了，的確是，他們腦中想的唯一想知道答案的問題是：你能幫上我嗎？
+真相是他們並不是真的很在意你不管你是教練、顧問或是你會撒魔法粉在他們身上，如果你可以幫他們得到他們真的真的真的很想要的東西的話，那麼他麼就會想辦法成為你的客戶。所以真正的魔法不是你的學位、教練證書(大部分我認識的最頂尖的教練都沒有證書，有些婚姻失敗、有些破產、有些在工作中被炒魷魚，但這都沒有關係。)
 
-The truth is they don’t care if you’re a coach, a consultant or if you can sprinkle fairy dust on them. If you can help them get what they really, really, really, really want, then they will find a way to become your client. So the real magic is not in your diplomas or coaching certifications. \(Most of the very best coaches I know have no certification. Some have failed marriages, some went broke and some were fired from jobs. That’s all irrelevant.\)
+真正的魔法並不是你自我信念也不是你認為是不是能夠給出足夠的價值。真正的魔法是發生在你是否真心願意幫助你的客戶，深入的探索一個他們從來都沒有真正問自己的一個問題：**你真的、真的、真的、真的想要的是什麼？**
+你出現、人在心在、大膽、有效的指引、持續不懈、就好像福爾摩斯一樣，更深入去探索他們的人生，比起任何出現在他們生命中的人都還要更深入。
 
-The real magic is not in your self-belief or whether or not you think you can deliver a certain amount of value. The real magic is in whether you are willing to help your clients dive deeper than they have ever gone into the question: What do you really, really, really, really want?
+找到一個方式運用你的指引魔法，為所有跟你談話的人都創造出這樣的體驗。因為這樣他們將會無論如何的都要體驗到更多這樣的感受。
 
-Show up. Be present. Be bold. Coach them powerfully. Be relentless. Be Sherlock Holmes and explore deeper into their lives than anyone has ever gone with them.
-
-Find a way to create an experience of your Coaching Magic for everyone you spend time with. Because then they will do whatever it takes to experience more of it.
-
-Don’t wait for one-hundred percent readiness. It will never come. When you are eighty percent ready, go for it. Run straight at it. Get exposed. Risk messing up.
+不要等到你百分之百準備好了才開始，因為這永遠不會出現。當你準備到80%就全力以赴吧。全力往前衝，讓人看見你。就會搞得一團亂都好也要去冒險。
 

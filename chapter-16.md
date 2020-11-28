@@ -1,14 +1,12 @@
 # 第十六章
 
-## 第十六章
-
-## Try this step-by-step process
+## 試試這個循序漸進的方法
 
 by Rich
 
-THERE REALLY ARE PROVEN steps to take for creating clients. And they don’t involve marketing or growing an email list or adding another thousand followers on Twitter. They don’t even require social media, a website or a business card. Despite what the “experts” tell you.
+是有一些真的證明有效的步驟讓你去創造客戶的。而這步驟跟行銷還有建立email名單或是在twitter上增加幾千個粉絲都沒有關係。甚至都不需要用到社群媒體、網站或是名片。那些所謂的”行銷專家”教你的方法都不需要。
 
-This process is powerful. And it works. Take a look:
+這個方法是很有效的。而且行得通，看一下：
 
-Connect + Invite + Create + Propose = CLIENTS”
+### **連結 ＋ 邀請 ＋ 創造 ＋ 提議 ＝ 客戶**
 
