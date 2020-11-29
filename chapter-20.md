@@ -6,7 +6,7 @@ by Rich
 
 在過去30天裡面你做了多少的提議，而提議裡面有多少的錢呢？
 
-一個提議是你清楚的對一個人說，”跟我合作Y個月的費用是$X”
+一個提議是你清楚的對一個人說，”跟我合作Y個月的費用是$X元”，這是在你發現到一個潛在客戶的可能有的激勵人心的願景所做的提議。這是一個當說出來之後只會到兩個答案的提議”要嘛！當然好！又或是清楚的不要”
 A proposal is where you explicitly say to a person, “It will cost $X to work with me for Y months.” It’s a proposal when you find out what would be an inspiring vision for a potential client. It’s a proposal when you tell them, “It’s either a Hell Yeah! for both of us or it’s a clear No.” It’s a proposal when you say, “This is how you make your payment. We begin the moment you send the money.”
 
 Most coaches have no idea how to make a proposal. A potential client asks, “What would it look like to work with you?” And the coach dives into logistics and hours and packages and options. Or they say, “Let me put something in writing and I’ll get back to you…”
