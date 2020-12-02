@@ -1,8 +1,6 @@
 # 第二十一章
 
-## 第二十一章
-
-## Never take less than two hours
+## 永遠不要指引少於2個小時
 
 by Rich
 

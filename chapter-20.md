@@ -6,24 +6,15 @@ by Rich
 
 在過去30天裡面你做了多少的提議，而提議裡面有多少的錢呢？
 
-一個提議是你清楚的對一個人說，”跟我合作Y個月的費用是$X元”，這是在你發現到一個潛在客戶的可能有的激勵人心的願景所做的提議。這是一個當說出來之後只會到兩個答案的提議”要嘛！當然好！又或是清楚的不要”
-A proposal is where you explicitly say to a person, “It will cost $X to work with me for Y months.” It’s a proposal when you find out what would be an inspiring vision for a potential client. It’s a proposal when you tell them, “It’s either a Hell Yeah! for both of us or it’s a clear No.” It’s a proposal when you say, “This is how you make your payment. We begin the moment you send the money.”
-
-Most coaches have no idea how to make a proposal. A potential client asks, “What would it look like to work with you?” And the coach dives into logistics and hours and packages and options. Or they say, “Let me put something in writing and I’ll get back to you…”
-
-Don’t be afraid of the money. It’s just a number. Some people will say yes. Many will say no. And either is fine because you can move forward once you have a clear yes or no. Most coaches are so afraid of a no that they won’t ever make a proposal.
-
-“Rich, I loved this coaching session we just did together. How much do you charge?” “Well, let’s slow things down for a moment. Let’s find out if it would really be a great fit for us to coach together. I have five criteria that any client must meet. My clients must be inspiring, or have an inspiring mission. They must make, or be ready to make, a big impact in the world. They must be fun. They must bring along a challenge; I’m not looking for an easy ride. And they must understand the power of commitment.” I’ll pause to check in with the person in front of me. If they meet these criteria, I’ll let them know. And then I’ll go on.
-
-“Would you like to hear a little more about how we could work together?” You see, I’m continually seeking permission to continue when it comes to a proposal.
-
-Then, based on our conversation, I will map out how our coaching will support their dreams, visions and goals becoming a reality. I will add to our conversation stories of results my clients have achieved or outrageous goals my clients have taken on. I’ll share stories about my own goals and even my own struggles. I don’t want to hide anything from my clients.
-
-And only then, if all of this is still a fit, will I talk “logistics.”
-
-“This is how often we will speak or meet. This is how much support you can count on from me. This is how much your investment will be. And this is how you make your payment. This is what you can count on me for. And this is what I require of you, if we are to work together.” I will be very clear with them:
-
-“Does this feel like we are rushing things? If it does, let’s slow things down. Because if this doesn’t feel like a fit, let’s call it a clear no for now. “Let me be clear: you do not need coaching. In fact nobody needs coaching. The question is, do you want coaching? Personally, I believe in coaching so much that I have had my own coach for years. But that’s because I love having someone who believes in me. I love having someone hold me accountable to a bigger vision. I love someone who doesn’t believe in the negative stories I tell myself or the fears that hold me back. Not everyone wants that.
-
-“Basically unless this is an absolute yes for you, let’s leave today being totally clear that it is a no. That way if the desire begins to build in you to be coached you can come back to me. But only when you are ready. “And if you decide you’d like to begin, the moment you make your payment you are in. Here’s where you send your check...”
-
+一個提議是你清楚的對一個人說，”跟我合作Y個月的費用是$X元”，這是在你發現到一個潛在客戶的可能有的激勵人心的願景所做的提議。這是一個當說出來之後只會到兩個答案的提議”要嘛！當然好！又或是清楚的不要”，這個提議是當你說”這個是你如何支付費用，當你支付完成我們就會開始。”
+大部分的教練不曉得如何進行提議。一個潛在客戶會問”跟你合作是怎樣進行的？”一般
+教練會跳進去講關於事務性的事情還有時數跟內容還有選項。或是他們會說”讓我把東西寫一寫，然後我會再發給你...”
+不要害怕開口談錢，錢只是數字而已。有些人會說好，許多人會說不，但不論是哪一個答案都沒有問題，你都可以放下然後往前看，一但你聽他們說好或是不好。大部分的教練很怕聽到no，所以他們連提議都不提。
+“瑞奇，我很愛我們一起經歷的這個指引環節。你一般如何收費？” 喔讓我們先緩緩，我們來看看是否我們真的適合一起指引。通常我會有五個條件，我的客戶都要符合這五個條件。
+我的客戶必須要能激勵人的，又或是他的使命要很鼓舞人心。他們必須要或是準備要給這個世界帶來巨大的影響。他們必須要有樂趣要好玩。還有他們一定要帶來挑戰，我不是來找個容易的事情來做。同時他們一定要相信承諾。 之後我會稍微停一下看看我面前的這個人，如果他們符合這些條件，我會讓他們知道，然後我才會繼續進行。
+“你想聽聽看關於我們怎麼合作嗎？”你有沒有發現到在這一路上提議的過程我都是不斷的在尋求許可。
+然後基於我們的溝通，我會列出我們的指引會如何支持到他的夢想、願景還有目標成真。我也會分享我客戶所達成的成果，或者是我的客戶如何開始執行他們不可理喻的夢想。還有我也會分享我的目標甚至我自己正在經歷的挑戰，我不會對我的客戶有所隱瞞。
+而只有這些我都說完，而他們也都依然覺得這個就是他們要的，那麼我才會講到”事務性的東西”。
+“如果我們要開始指引，這是我們多久指引一次或是碰面。這是你可以依靠我的支持有那些。還有你會投資多少錢在這指引上。以及付費的方式在這。你可以依靠我的是什麼。跟這是我對你的要求是什麼。”這些東西我都會很清楚地跟他們說。
+“我說的這些東西對你聽起來聽起會很急嗎？”如果會的話，我們可以慢下來，因為如果不是真的適合我們可以現在喊停。”讓我先說清楚：你不需要指引，事實上沒有人需要指引，問題是，你想要指引嗎？對我個人來說，我非常相信指引，我自己在這好幾年來我都有教練，但這是因為我很熱愛有人可以這麼相信我。我很愛有人可以把我看得夠大可以當責創造出更大的願景。我很愛有人不會相信我對自己講的負面想法或是阻礙著我的恐懼” 但不是每個人都想要這些。
+“基本上除非這些對你來說都是絕對的Yes，不然就在今天就很清楚的說No。這樣的話如果之後你想要被指引的渴望又被點起的時候，你還可以回來找我，但是只有當你準備好的時候。還有如果你決定要開始，當你完成付款之後的那一刻就是開始了，你可以匯款到這個戶頭....”
