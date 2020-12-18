@@ -4,9 +4,7 @@
 
 by Rich
 
-A COACH I KNOW WAS shocked when I told him that I never spend less than two hours with a potential client. You see, he only ever spends twenty to thirty minutes in conversation with potential clients.
+一個我認識的教練很驚訝聽到我跟他說，我從來不會在潛在客戶的時間用少於2個小時。你要知道這個教練他只會花20-30分鐘的時間去跟他的潛在客戶溝通。
+狄伊·哈克曾經是VISA的CEO，世界上第一個萬億元公司，他曾經說過”身為一個領導者，我從不會安排一個會議是少於2個小時的，任何少於那個時間的事情都應該由其他人去解決。”
 
-Dee Hock was the CEO of VISA, the first-ever trillion dollar company. He once said, “As a leader, I’ll never schedule a meeting for less than two hours. Anything less than that and the issue should be dealt with by someone else.”
-
-I took that idea into my coaching. And I’ll never meet a potential client for less than two hours.
-
+我把這個概念運用在我的指引裡，而我從不會跟我的潛在客戶講少於兩個小時的談話。

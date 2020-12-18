@@ -1,38 +1,32 @@
 # 第二十二章
 
-## 第二十二章
-
-## Don’t close a sale—open a relationship
+## 不要試著成交一個銷售 - 試著打開一段關係
 
 by Rich
 
-IT’S INTERESTING, AND RELEVANT to coaching success, how a woman once described the difference between meeting Gladstone and Disraeli in the week that they were both standing for election as the British Prime Minister.
+這個很有趣，而且也跟成功的指引很有關聯。
+曾經有位女士用這樣的方式來形容兩位準備要競選英國首相的兩位候選人的差別，她在同一週裡會見了格萊斯頓和迪斯雷利。她說“在我跟格萊斯頓共進晚餐後我發覺他是世界上最有趣的人...但我跟迪斯雷利晚餐後我認為我是世界上最有趣的人”
 
-She said, “After dinner with Gladstone, I thought he was the most interesting person in the world… But after dinner with Disraeli, I thought I was the most interesting person in the world…”
+迪斯雷利贏得的那次的大選
 
-Disraeli won the election.
+作為一個教練，要像迪斯雷利一樣。
 
-As a coach, be more like Disraeli.
+當開始跟潛在客戶談話的時候，讓自己在一個真的真的真的活在當下，將你全部的注意力都放在他的身上並且開始好奇，問一些問題關於他們的人生、他們的世界，問問他們的夢想、渴望，還有他們的恐懼、痛苦。
 
-Approach a conversation with a potential client from a place of being really, really present. Put all your attention on them and get curious. Ask questions about their life and their world. Ask about their dreams and desires, their fears and their pain.
+然後 如果-真的只有在你有看到有地方你可以幫的上忙的地方，你問”你想要在這上面獲得一些幫助嗎？”
+我總是從建立關係開始，我從來沒有試著”賣”任何東西給任何人。讓我跟你說告訴一個故事。
+當我住在北京的幾個月時間裡，我跟一個很棒的女企業家有一段很好的對話，她是個成功的企業家、教練跟顧問。我被她所建立的名聲，還有跟她的外籍丈夫以及在企業界都做得很成功給感動到。
 
-And then, if—I stress if—you see a place where you could help, ask, “Would you like some support with that?”
+她想要有些支持而我為她進行了一個指引環節。我們進行了一些深入的指引，但在指引快要結束時，她覺得她不需要一段持續下去的指引關係，所以就算我很像繼續指引她，我也選擇不提說關於繼續指引的事情。
 
-I always come from a place of building relationships. I’m never trying to “sell” anything to anyone. Let me tell you a story about this.
+這時候如果我的心中只有想到要成交一個交易的話，我大可以把他的名字從我的名單上刪掉，然後繼續去找其他的潛在客戶來指引。
 
-While living in Beijing for a few months, I had a great conversation with a wonderful businesswoman. She was a successful entrepreneur, coach and consultant. And she inspired me with the reputation she had created for herself in working both with ex-pat spouses and also in the corporate world.
+但是相反的我選擇打開了一段關係，幾個月過後，我會寄個信問候一下她，我也會寄有深度的文章給她。當到了聖誕節她說她需要有一些幫助，我就跟她說“打給我我可以指引一下妳”。
 
-She asked for some support and I created a coaching session for her. We did some deep coaching but at the end of the session it didn’t feel like she needed ongoing coaching. So, as much as I would have loved to have worked with her, I chose not to even suggest that we coach together.
+從18個月前我遇見她，我們都不斷地保持聯絡，而他從未付我一毛錢或成為我的客戶。而突然有一天，我又想到她然後我有個想法，我就發了一封email給她說："我剛好想到妳，然後我最近有些新的計劃你可能會有興趣，妳想聽聽看嗎？"
 
-Now at that point if I had only been interested in closing a sale, I’d have crossed her off my address book and gone out looking for other people to coach.
+她說想啊然後就打給我了。在這兩個小時裡面我深入了解她的夢想，然後到最後我們討論
+關於一起合作關於指引的事。
 
-Instead, I opened a relationship. Over the months ahead, I emailed to check in with her. I sent her an interesting article. And at Christmas when she asked for a little support, I told her to call me and I coached her.
-
-In the eighteen months since I’d met her, we’d stayed connected but she’d never paid me a thing or become a client. Then one day, she came to my mind and I had an idea. I emailed and said, “I’ve been thinking of you and I have something that I think may be a great fit for you. Would you like to hear a little bit about it?”
-
-She said yes and called me. I explored her dreams with her for two hours. And at the end we discussed coaching together.
-
-Then she sent me a check—a year and a half after we first met.
-
-Imagine if I’d tried to close a sale at the beginning and then walked away when that didn’t happen. Coaches do that all the time. They fail to see that this is a relationship business.
-
+然後她就寄給支票給我。 -這切都從一年半前我們第一次見面開始。
+想像一下如果我在一開始時就想著要成交然後如果沒有成功我就離開，有時候教練們很常這樣做。但是他們沒看見的是 指引是一份講關係的事業。
